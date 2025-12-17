@@ -12,3 +12,4 @@ Am i pathetic? Yes. I can barely write correct syntax, as my name suggests.
 I use linux, arch and gentoo, however, i don't brag about my distro installations, i call that cowardly behavior.
 I extremely hate shortcuts, and will get aggressive. I see it as a de-evolvement of language.
 I am neutral, that simply means. I treat the surrounding people with the same default privileges.
+The profile picture is intentionally low resolution.
